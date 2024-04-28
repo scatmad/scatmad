@@ -1,8 +1,8 @@
-- 👋 Hi, I’m @scatmad
+- 👋 Hi, I’m yours 
 - 👀 I’m interested in you
 - 🌱 I’m currently learning make you mine
 - 💞️ I’m looking to collaborate on bed
-- 📫 How to reach me dm me on dc
+- 📫 How to reach me dm me on Discord 
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: Im straight and i like girls 
 
